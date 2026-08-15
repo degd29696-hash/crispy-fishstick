@@ -1,4 +1,4 @@
-Tentu 👍 Berikut versi bahasa Inggris lengkap untuk informasi website kamu.
+
 
 🌴 BALI TOUR TRACKING
 
